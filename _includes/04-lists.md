@@ -1,0 +1,3 @@
+* Snowboarding
+* Backpacking
+* Swimming
